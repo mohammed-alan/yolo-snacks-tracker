@@ -73,4 +73,7 @@ MIT License – free to use, modify, and share.
 
 ---
 
-<img width="1919" height="814" alt="Screenshot 2025-08-19 175529" src="https://github.com/user-attachments/assets/a192ea06-e45a-45d4-be18-3752d14df304" />
+
+
+https://github.com/user-attachments/assets/5d4bf0e8-c074-4f50-956e-e12369c27018
+
